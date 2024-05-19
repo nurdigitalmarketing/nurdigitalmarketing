@@ -1,3 +1,13 @@
-## Web Agency in Mantua since 1999
+## Experts in Digital Services, SEO Strategies, and AI Solutions
 
-The activity of **NUR S.r.l.** began way back in 1999 when, still at the dawn of the web as we know it today, the company placed itself on the market above all for the creation of corporate websites, then gradually expanding the offering of services to companies by virtue of the growth and technological innovation that the "internet" has brought about in recent years.
+**NUR® Digital Marketing** embarked on its journey in 1999, at the dawn of the modern web. Initially, we focused on crafting corporate websites, establishing a solid presence in the market. Over the years, driven by the rapid growth and technological innovations of the internet, we've expanded our services to include:
+
+- **SEO Automation**: Leveraging cutting-edge technology to enhance search engine optimization.
+- **AI Solutions**: Implementing advanced AI for smarter digital strategies.
+- **Digital Marketing Services**: Offering comprehensive digital marketing strategies to drive business growth.
+
+Today, we stands at the forefront of digital transformation, delivering innovative solutions to meet the evolving needs of businesses.
+
+## Contact
+
+For any questions or comments, please contact us at [info@nur.it](mailto:info@nur.it).
